@@ -13,7 +13,7 @@ atau teman-teman ingin kuliah lebih jauh sambil melihat kondisi situasi lain sep
 
 yuk tunggu apalagi daftarkan diri anda segera!
 
-### Fasilitas;
+#### Fasilitas
 
 🧭 Sistem belajar yang fleksible
 

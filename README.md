@@ -16,9 +16,13 @@ yuk tunggu apalagi daftarkan diri anda segera!
 Fasilitas;
 
 🧭 Sistem belajar yang fleksible
+
 🏫 Tersedia kampus pilihan Favorite di seluruh indonesia
+
 📝 Disediakan Sistem pembayaran yang Tranfaran yang dapat dipantau setiap saat.
+
 👀 Lokasi sesuai selera teman-teman 
+
 🌄 bisa sambil touring jika ada kkl
 
 

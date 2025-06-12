@@ -19,7 +19,7 @@ yuk tunggu apalagi daftarkan diri anda segera!
 
 🏫 Tersedia kampus pilihan Favorite di seluruh indonesia
 
-📝 Disediakan Sistem pembayaran yang Tranfaran yang dapat dipantau setiap saat.
+📝 Disediakan Sistem pembayaran yang Tranfaran dan Fleksible dapat diangsur yang dapat dipantau setiap saat.
 
 👀 Lokasi sesuai selera teman-teman 
 

@@ -13,7 +13,7 @@ atau teman-teman ingin kuliah lebih jauh sambil melihat kondisi situasi lain sep
 
 yuk tunggu apalagi daftarkan diri anda segera!
 
-Fasilitas;
+###Fasilitas;
 
 🧭 Sistem belajar yang fleksible
 
@@ -32,9 +32,15 @@ Kuliah sambil kerja tersedia jadwal yang Fleksibel disesuaikan dengan kondisi an
 
 🏫 [Pilih kampus](https://edunitas.com/kampus?gsf_by=d7bf08e6)
 
+🎓 [Daftar Sekarang](https://edunitas.com/kampus/pendaftaran?gsf_by=d7bf08e6)
+
 
 #### Konsultasi
-Bagi semua Teman-teman yang ingin mendaftar kuliah sambil kerja bisa di kondisikan dari sekarang.
+Bagi semua Teman-teman yang ingin mendaftar kuliah sambil kerja bisa di kondisikan dari sekarang
+
+untuk informasi lebih lanjut hubungi saya segera!
+
+kontak/Wa:
 
 💬 [Whatsapp](https://wa.me/qr/W24YNYJL2NHFE1)
 

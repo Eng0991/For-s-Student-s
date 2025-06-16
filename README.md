@@ -6,7 +6,7 @@ pendidikan adalah kebutuhan yang sangat kuat dalam mendapatkan prioritas kerja,t
 
 Yuk daftarkan diri anda sekarang!
 dengan kampus-kampus pilihan terbaik kuliah sambil kerja diindonesia bersama edunitas website terbaik dalam memberi rekomendasi untuk mahasiswa dengan dukungan belajar
-offline onlline dan learning blended,Malam,dan lebil fleksible Menyesuaikan aktifitas kerja sehari-hari.
+offline onlline dan learning blended,Malam,dan lebih fleksible Menyesuaikan aktifitas kerja sehari-hari.
 tersedia kuliah sambil kerja dihari-hari Jum'at,Sabtu dan Minggu atau reguler,dengan metode payment yang profesional aman dan terpercaya yang menghubungkan Mahasiswa dengan Kampus favorit pilihan disesuaikan dengan lokasi saat ini.
 
 atau teman-teman ingin kuliah lebih jauh sambil melihat kondisi situasi lain seperti luar profinsi agar dapat mengenal kearifan lokal destinasi wisatanya yang menjadi favorite teman-teman ingin mendapat situasi yang berbeda menyenangkan dan mengesankan

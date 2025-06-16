@@ -38,13 +38,6 @@ Kuliah sambil kerja tersedia jadwal yang Fleksibel disesuaikan dengan kondisi an
 #### Konsultasi
 Bagi semua Teman-teman yang ingin mendaftar kuliah sambil kerja bisa di kondisikan dari sekarang
 
-untuk informasi lebih lanjut hubungi saya segera!
-
-kontak/Wa:
-d
-💬 [Whatsapp](https://wa.me/qr/W24YNYJL2NHFE1)
-
-
 #### Testimoni
 
 ##### Pertanyaan

@@ -41,7 +41,7 @@ Bagi semua Teman-teman yang ingin mendaftar kuliah sambil kerja bisa di kondisik
 untuk informasi lebih lanjut hubungi saya segera!
 
 kontak/Wa:
-
+d
 💬 [Whatsapp](https://wa.me/qr/W24YNYJL2NHFE1)
 
 

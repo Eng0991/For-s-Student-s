@@ -51,5 +51,6 @@ ___
 
 [7 cara sukses dalam meniti karir masa depan](https://medium.com/@Urbanhire/7-kunci-sukses-meniti-karir-buat-generasi-muda-f59ac5322adc)
 
+[ Kepercayaan Diri yang Pas Dalam Karir (Ga Minder + Ga Merasa Paling Pinter](https://medium.com/@iqbalhariadi/kepercayaan-diri-yang-pas-dalam-karir-ga-minder-ga-merasa-paling-pinter-e7727332bfc9)
 
 

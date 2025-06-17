@@ -47,6 +47,7 @@ Hal apa yang Ingin di capai dalam mengikuti pembelajaran ini?
 Tulis di komentar yak Teman-teman Terimakasih semoga bermanfaat 🙏🏿
 
 
+[7 cara sukses dalam meniti karir masa depan](https://medium.com/@Urbanhire/7-kunci-sukses-meniti-karir-buat-generasi-muda-f59ac5322adc)
 
 
 

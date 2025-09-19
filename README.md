@@ -32,7 +32,7 @@ yuk tunggu apalagi daftarkan diri anda segera!
 #### Pilihan Kampus Diindonesia
 Kuliah sambil kerja tersedia jadwal yang Fleksibel disesuaikan dengan kondisi anda saat ini
 
-🏫 [Pilih kampus](https://edunitas.com/kampus?gsf_by=d7bf08e6)
+🏫 [<button>Pilih kampus</button>](https://edunitas.com/kampus?gsf_by=d7bf08e6)
 
 🎓 [Daftar Sekarang](https://edunitas.com/kampus/pendaftaran?gsf_by=d7bf08e6)
 

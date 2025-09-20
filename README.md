@@ -1,5 +1,8 @@
-## <em><strong>For-s-Student-s</string>
-Recommendation FOR'S Studen Career</em>
+## <em><strong>For-s-Student-s</string></em>
+
+---
+
+<em>Recommendation FOR'S Studen Career</em>
 
 <button><strong> Like </strong></button><button><strong> subscribe </strong></button><strong> Next </strong></button>
 

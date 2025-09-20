@@ -1,4 +1,4 @@
-## <em><strong>For-s-Student-s</string></em>
+## <em><strong>🏷️ For-s-Student-s</string></em>
 
 ---
 
@@ -8,7 +8,7 @@
 
 ---
 
-### <em><strong>About page:</strong></em>
+### <em><strong>🏷️ About page:</strong></em>
 <em>pendidikan adalah kebutuhan yang sangat kuat dalam mendapatkan prioritas kerja,tingkat pendidikan menjadi tolak ukur penting dalam mencari potensi yang tepat dan cepat,meminimalrisir pengangguran Memberi solusi terbaik dalam mengatasi dampak sidnifikan dalam kerja,Bagi Teman-teman yang ingin mendaftar kuliah sambil kerja adalah solisi efektif.</em>
 
 <be>
@@ -23,7 +23,7 @@ tersedia kuliah sambil kerja dihari-hari Jum'at,Sabtu dan Minggu atau reguler,de
 <em><strong>yuk!...</strong>tunggu apalagi daftarkan diri anda segera!...Perubahan dimulai saat anda mau mencoba untuk berubah !...</em>
 
 ---
-### <em><strong>Fasilitas</strong>
+### <em><strong>📌 Fasilitas</strong>
 
 🧭 Sistem belajar yang fleksible
 
@@ -40,7 +40,7 @@ tersedia kuliah sambil kerja dihari-hari Jum'at,Sabtu dan Minggu atau reguler,de
 ### <em>Pilihan Kampus Diindonesia
 Kuliah sambil kerja tersedia jadwal yang Fleksibel disesuaikan dengan kondisi anda saat ini
 
-🏫 [<button>Pilih kampus</button>](https://edunitas.com/kampus?gsf_by=d7bf08e6)
+🏫 [<button>🔍 Pilih kampus</button>](https://edunitas.com/kampus?gsf_by=d7bf08e6)
 
 🎓 [Daftar Sekarang](https://edunitas.com/kampus/pendaftaran?gsf_by=d7bf08e6)
 
@@ -48,7 +48,7 @@ Bagi semua Teman-teman yang ingin mendaftar kuliah sambil kerja bisa di kondisik
 
 ---
 
-### Testimoni
+### 📝Testimoni
 
 ##### Pertanyaan ?...
 

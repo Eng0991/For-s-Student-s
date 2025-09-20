@@ -1,9 +1,9 @@
-### <strong>For-s-Student-s</string>
-Recommendation FOR'S Studen Career
+### <em><strong>For-s-Student-s</string>
+Recommendation FOR'S Studen Career</em>
 
 <button><strong>Like</strong></button>
 
-#### <strong>About page:</strong>
+#### <em><strong>About page:</strong></em>
 <em>pendidikan adalah kebutuhan yang sangat kuat dalam mendapatkan prioritas kerja,tingkat pendidikan menjadi tolak ukur penting dalam mencari potensi yang tepat dan cepat,meminimalrisir pengangguran Memberi solusi terbaik dalam mengatasi dampak sidnifikan dalam kerja,Bagi Teman-teman yang ingin mendaftar kuliah sambil kerja adalah solisi efektif.</em>
 
 <be>
@@ -17,7 +17,7 @@ tersedia kuliah sambil kerja dihari-hari Jum'at,Sabtu dan Minggu atau reguler,de
 
 <em><strong>yuk tunggu apalagi daftarkan diri anda segera!</strong></em>
 
-#### <strong>Fasilitas</strong>
+#### <em><strong>Fasilitas</strong>
 
 🧭 Sistem belajar yang fleksible
 
@@ -27,7 +27,7 @@ tersedia kuliah sambil kerja dihari-hari Jum'at,Sabtu dan Minggu atau reguler,de
 
 👀 Lokasi sesuai selera teman-teman 
 
-🌄 bisa sambil touring jika ada kkl
+🌄 bisa sambil touring jika ada kkl</em>
 
 
 

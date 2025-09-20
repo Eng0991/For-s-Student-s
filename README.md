@@ -16,6 +16,7 @@ tersedia kuliah sambil kerja dihari-hari Jum'at,Sabtu dan Minggu atau reguler,de
 <em>atau teman-teman ingin kuliah lebih jauh sambil melihat kondisi situasi lain seperti luar profinsi agar dapat mengenal kearifan lokal destinasi wisatanya yang menjadi favorite teman-teman ingin mendapat situasi yang berbeda menyenangkan dan mengesankan</em>
 
 <em><strong>yuk tunggu apalagi daftarkan diri anda segera!</strong></em>
+
 ---
 ### <em><strong>Fasilitas</strong>
 
@@ -28,6 +29,7 @@ tersedia kuliah sambil kerja dihari-hari Jum'at,Sabtu dan Minggu atau reguler,de
 👀 Lokasi sesuai selera teman-teman 
 
 🌄 bisa sambil touring jika ada kkl</em>
+
 ---
 
 

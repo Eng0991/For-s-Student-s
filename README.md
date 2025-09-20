@@ -1,7 +1,7 @@
 ## <em><strong>For-s-Student-s</string>
 Recommendation FOR'S Studen Career</em>
 
-<button><strong>Like</strong></button><button><strong>subscribe</strong></button><strong>Next</strong></button>
+<button><strong> Like </strong></button><button><strong> subscribe </strong></button><strong> Next </strong></button>
 
 
 #### <em><strong>About page:</strong></em>

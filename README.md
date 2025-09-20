@@ -31,7 +31,7 @@ tersedia kuliah sambil kerja dihari-hari Jum'at,Sabtu dan Minggu atau reguler,de
 
 
 
-#### Pilihan Kampus Diindonesia
+#### <em>Pilihan Kampus Diindonesia
 Kuliah sambil kerja tersedia jadwal yang Fleksibel disesuaikan dengan kondisi anda saat ini
 
 🏫 [<button>Pilih kampus</button>](https://edunitas.com/kampus?gsf_by=d7bf08e6)
@@ -48,14 +48,14 @@ Apa yang memotivasi teman-teman kuliah?
 
 Hal apa yang Ingin di capai dalam mengikuti pembelajaran ini?
 
-Tulis di komentar yak Teman-teman Terimakasih semoga bermanfaat 🙏🏿
+Tulis di komentar yak Teman-teman Terimakasih semoga bermanfaat</em> 🙏🏿
 ___
 
 ### Kiat-kiat sukses
 
-[7 cara sukses dalam meniti karir masa depan](https://medium.com/@Urbanhire/7-kunci-sukses-meniti-karir-buat-generasi-muda-f59ac5322adc)
+<em>[7 cara sukses dalam meniti karir masa depan](https://medium.com/@Urbanhire/7-kunci-sukses-meniti-karir-buat-generasi-muda-f59ac5322adc)
 
-[ Kepercayaan Diri yang Pas Dalam Karir (Ga Minder + Ga Merasa Paling Pinter)](https://medium.com/@iqbalhariadi/kepercayaan-diri-yang-pas-dalam-karir-ga-minder-ga-merasa-paling-pinter-e7727332bfc9)
+[ Kepercayaan Diri yang Pas Dalam Karir (Ga Minder + Ga Merasa Paling Pinter)](https://medium.com/@iqbalhariadi/kepercayaan-diri-yang-pas-dalam-karir-ga-minder-ga-merasa-paling-pinter-e7727332bfc9)</em>
 
 
 

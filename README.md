@@ -3,19 +3,19 @@ Recommendation FOR'S Studen Career
 
 <button><strong>Like</strong></button>
 
-#### About page:
-<br><em>pendidikan adalah kebutuhan yang sangat kuat dalam mendapatkan prioritas kerja,tingkat pendidikan menjadi tolak ukur penting dalam mencari potensi yang tepat dan cepat,meminimalrisir pengangguran Memberi solusi terbaik dalam mengatasi dampak sidnifikan dalam kerja,Bagi Teman-teman yang ingin mendaftar kuliah sambil kerja adalah solisi efektif.</em><br>
-
-Yuk daftarkan diri anda sekarang!
+#### <strong>About page:</strong>
+<em>pendidikan adalah kebutuhan yang sangat kuat dalam mendapatkan prioritas kerja,tingkat pendidikan menjadi tolak ukur penting dalam mencari potensi yang tepat dan cepat,meminimalrisir pengangguran Memberi solusi terbaik dalam mengatasi dampak sidnifikan dalam kerja,Bagi Teman-teman yang ingin mendaftar kuliah sambil kerja adalah solisi efektif.</em>
+<be>
+<em>Yuk daftarkan diri anda sekarang!
 dengan kampus-kampus pilihan terbaik kuliah sambil kerja diindonesia bersama edunitas website terbaik dalam memberi rekomendasi untuk mahasiswa dengan dukungan belajar
 offline onlline dan learning blended,Malam,dan lebih fleksible Menyesuaikan aktifitas kerja sehari-hari.
-tersedia kuliah sambil kerja dihari-hari Jum'at,Sabtu dan Minggu atau reguler,dengan metode payment yang profesional aman dan terpercaya yang menghubungkan Mahasiswa dengan Kampus favorit pilihan disesuaikan dengan lokasi saat ini.
+tersedia kuliah sambil kerja dihari-hari Jum'at,Sabtu dan Minggu atau reguler,dengan metode payment yang profesional aman dan terpercaya yang menghubungkan Mahasiswa dengan Kampus favorit pilihan disesuaikan dengan lokasi saat ini.</em>
 
-atau teman-teman ingin kuliah lebih jauh sambil melihat kondisi situasi lain seperti luar profinsi agar dapat mengenal kearifan lokal destinasi wisatanya yang menjadi favorite teman-teman ingin mendapat situasi yang berbeda menyenangkan dan mengesankan
+<em>atau teman-teman ingin kuliah lebih jauh sambil melihat kondisi situasi lain seperti luar profinsi agar dapat mengenal kearifan lokal destinasi wisatanya yang menjadi favorite teman-teman ingin mendapat situasi yang berbeda menyenangkan dan mengesankan</em>
 
-yuk tunggu apalagi daftarkan diri anda segera!
+<strong>yuk tunggu apalagi daftarkan diri anda segera!</strong>
 
-#### Fasilitas
+#### <strong>Fasilitas</strong>
 
 🧭 Sistem belajar yang fleksible
 

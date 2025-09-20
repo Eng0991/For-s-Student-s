@@ -5,7 +5,9 @@ Recommendation FOR'S Studen Career
 
 #### <strong>About page:</strong>
 <em>pendidikan adalah kebutuhan yang sangat kuat dalam mendapatkan prioritas kerja,tingkat pendidikan menjadi tolak ukur penting dalam mencari potensi yang tepat dan cepat,meminimalrisir pengangguran Memberi solusi terbaik dalam mengatasi dampak sidnifikan dalam kerja,Bagi Teman-teman yang ingin mendaftar kuliah sambil kerja adalah solisi efektif.</em>
+
 <be>
+
 <em>Yuk daftarkan diri anda sekarang!
 dengan kampus-kampus pilihan terbaik kuliah sambil kerja diindonesia bersama edunitas website terbaik dalam memberi rekomendasi untuk mahasiswa dengan dukungan belajar
 offline onlline dan learning blended,Malam,dan lebih fleksible Menyesuaikan aktifitas kerja sehari-hari.
@@ -13,7 +15,7 @@ tersedia kuliah sambil kerja dihari-hari Jum'at,Sabtu dan Minggu atau reguler,de
 
 <em>atau teman-teman ingin kuliah lebih jauh sambil melihat kondisi situasi lain seperti luar profinsi agar dapat mengenal kearifan lokal destinasi wisatanya yang menjadi favorite teman-teman ingin mendapat situasi yang berbeda menyenangkan dan mengesankan</em>
 
-<strong>yuk tunggu apalagi daftarkan diri anda segera!</strong>
+<em><strong>yuk tunggu apalagi daftarkan diri anda segera!</strong></em>
 
 #### <strong>Fasilitas</strong>
 

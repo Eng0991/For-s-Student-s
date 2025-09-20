@@ -17,7 +17,7 @@ tersedia kuliah sambil kerja dihari-hari Jum'at,Sabtu dan Minggu atau reguler,de
 
 <em><strong>yuk tunggu apalagi daftarkan diri anda segera!</strong></em>
 
-#### <em><strong>Fasilitas</strong>
+### <em><strong>Fasilitas</strong>
 
 🧭 Sistem belajar yang fleksible
 
@@ -31,7 +31,7 @@ tersedia kuliah sambil kerja dihari-hari Jum'at,Sabtu dan Minggu atau reguler,de
 
 
 
-#### <em>Pilihan Kampus Diindonesia
+### <em>Pilihan Kampus Diindonesia
 Kuliah sambil kerja tersedia jadwal yang Fleksibel disesuaikan dengan kondisi anda saat ini
 
 🏫 [<button>Pilih kampus</button>](https://edunitas.com/kampus?gsf_by=d7bf08e6)
@@ -40,7 +40,7 @@ Kuliah sambil kerja tersedia jadwal yang Fleksibel disesuaikan dengan kondisi an
 
 Bagi semua Teman-teman yang ingin mendaftar kuliah sambil kerja bisa di kondisikan dari sekarang
 
-#### Testimoni
+### Testimoni
 
 ##### Pertanyaan
 

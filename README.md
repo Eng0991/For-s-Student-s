@@ -4,7 +4,7 @@
 
 <em>Recommendation FOR'S Studen Career</em>
 
-<button><strong> Like </strong></button><button><strong> subscribe </strong></button><strong> Next </strong></button>
+<button><strong> Like </strong></button> and <button><strong> subscribe </strong></button>
 
 ---
 

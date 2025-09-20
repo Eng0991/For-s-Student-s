@@ -50,11 +50,11 @@ Bagi semua Teman-teman yang ingin mendaftar kuliah sambil kerja bisa di kondisik
 
 ### Testimoni
 
-##### Pertanyaan
+##### Pertanyaan ?...
 
-Apa yang memotivasi teman-teman kuliah?
+Apa yang memotivasi teman-teman kuliah ?...
 
-Hal apa yang Ingin di capai dalam mengikuti pembelajaran ini?
+Hal apa yang Ingin di capai dalam mengikuti pembelajaran ini ?...
 
 Tulis di komentar yak Teman-teman Terimakasih semoga bermanfaat</em> 🙏🏿
 

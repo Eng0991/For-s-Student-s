@@ -71,7 +71,7 @@ ___
 
 ## Yuk!...Belanja Kebutuhan Mu Disini 
 
-###Daftar Tempat Belanja!...
+###  Belanja yuk untuk kebutuhanmu!...
 
 [rupa-rupa](https://invl.me/clmzt5r)
 

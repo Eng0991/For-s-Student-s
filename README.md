@@ -69,9 +69,7 @@ ___
 
 ---
 
-## <strong> <em> Yuk!...Belanja Kebutuhan Mu Disini</string>
-
-###  Belanja yuk untuk kebutuhanmu!...
+### Belanja Kebutuhan 
 
 🛒  [ rupa-rupa](https://invl.me/clmzt5r)
 🛒  [ Alibaba](https://invl.me/clmzt69)

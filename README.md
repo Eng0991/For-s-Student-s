@@ -69,7 +69,7 @@ ___
 
 ---
 
-## <em> Yuk!...Belanja Kebutuhan Mu Disini 
+## <strong> <em> Yuk!...Belanja Kebutuhan Mu Disini</string>
 
 ###  Belanja yuk untuk kebutuhanmu!...
 

@@ -67,5 +67,12 @@ ___
 [ Kepercayaan Diri yang Pas Dalam Karir (Ga Minder + Ga Merasa Paling Pinter)](https://medium.com/@iqbalhariadi/kepercayaan-diri-yang-pas-dalam-karir-ga-minder-ga-merasa-paling-pinter-e7727332bfc9)</em>
 
 
+---
+
+## Yuk!...Belanja Kebutuhan Mu Disini 
+
+###Daftar Tempat Belanja!...
+
+[rupa-rupa](https://invl.me/clmzt5r)
 
 

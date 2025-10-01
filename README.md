@@ -73,6 +73,8 @@ ___
 
 ###  Belanja yuk untuk kebutuhanmu!...
 
-[rupa-rupa](https://invl.me/clmzt5r)
+🛒 [rupa-rupa](https://invl.me/clmzt5r)
+🛒 [Alibab](https://invl.me/clmzt69)
+🛒 [Blibli](https://invl.me/clmzt6d)
 
 

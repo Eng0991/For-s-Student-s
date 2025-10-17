@@ -4,7 +4,7 @@
 
 <em>🇮🇩 Recommendation FOR'S Studen Career</em>
 
-<button><strong> Like </strong></button> and <button><strong> subscribe </strong></button>
+<p> Anda sedang bingung mencari tempat kuliah sambil Kerja Coba kuliah di edunitas </p> 
 <br><button> Affiliate Edunitas </button><br>
 
 ---

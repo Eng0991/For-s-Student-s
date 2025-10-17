@@ -20,7 +20,8 @@ tersedia kuliah sambil kerja dihari-hari Jum'at,Sabtu dan Minggu atau reguler,de
 
 <em>atau teman-teman ingin kuliah lebih jauh sambil melihat kondisi situasi lain seperti luar profinsi agar dapat mengenal kearifan lokal destinasi wisatanya yang menjadi favorite teman-teman ingin mendapat situasi yang berbeda menyenangkan dan mengesankan</em>
 
-<em><strong>yuk!...</strong>tunggu apalagi daftarkan diri anda segera!...Cari kampusnya sesuai dengan kebutuhan teman-teman yak Jangan ragu mencoba,Perubahan dimulai saat anda mau mencoba untuk berubah semoga sukses selalu!...</em>
+<em><strong>yuk!...</strong>tunggu apalagi daftarkan diri anda segera!...Cari kampusnya sesuai dengan kebutuhan teman-teman yak Jangan ragu mencoba,Perubahan dimulai saat anda mau mencoba untuk berubah semoga sukses selalu!...
+Pesan ini ditulis Oleh Affilator Edunitas Terimakasih 🙏</em>
 
 ---
 ### <em><strong>📌 Fasilitas</strong>

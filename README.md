@@ -5,7 +5,7 @@
 <em>🇮🇩 Recommendation FOR'S Studen Career</em>
 
 <button><strong> Like </strong></button> and <button><strong> subscribe </strong></button>
-<button> Affiliate Edunitas </button>
+<br><button> Affiliate Edunitas </button><br>
 ---
 
 ### <em><strong>🏷️ About page:</strong></em>

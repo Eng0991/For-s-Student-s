@@ -4,7 +4,7 @@
 
 <em>🇮🇩 Recommendation FOR'S Studen Career</em>
 
-<p> Anda sedang bingung mencari tempat kuliah sambil Kerja Coba kuliah di edunitas </p><br>Pesan ini saya simpan disini yak</p>
+<p> Anda sedang bingung mencari tempat kuliah sambil Kerja Coba kuliah di edunitas </p>
 
 
 ---

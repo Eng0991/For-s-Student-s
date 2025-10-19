@@ -4,7 +4,7 @@
 
 <em>🇮🇩 Recommendation FOR'S Studen Career</em>
 
-<p> Anda sedang bingung mencari tempat kuliah sambil Kerja Coba kuliah di edunitas </p>
+<p> Anda sedang bingung mencari tempat kuliah sambil Kerja Coba kuliah di edunitas </p><br>Pesan ini saya simpan disini yak</p>
 
 
 ---
@@ -21,8 +21,8 @@ tersedia kuliah sambil kerja dihari-hari Jum'at,Sabtu dan Minggu atau reguler,de
 
 <em>atau teman-teman ingin kuliah lebih jauh sambil melihat kondisi situasi lain seperti luar profinsi agar dapat mengenal kearifan lokal destinasi wisatanya yang menjadi favorite teman-teman ingin mendapat situasi yang berbeda menyenangkan dan mengesankan</em>
 
-<em><strong>yuk!...</strong>tunggu apalagi daftarkan diri anda segera!...Cari kampusnya sesuai dengan kebutuhan teman-teman yak Jangan ragu berpengalaman danvterpercaya,Perubahan dimulai saat anda mau mencoba untuk berubah semoga sukses selalu!...
-Terimakasih 🙏</em>
+<em><strong>yuk!...</strong>tunggu apalagi daftarkan diri anda segera!...Cari kampusnya sesuai dengan kebutuhan teman-teman yak Jangan ragu berpengalaman danvterpercaya,Perubahan dimulai saat anda mau mencoba untuk berubah semoga sukses selalu yak!...
+<br> Uang Kuliah Mulai 350 saja perbulan, Ada program beasiswa gratis S&K Berlaku</em>
 
 ---
 ### <em><strong>📌 Fasilitas</strong>

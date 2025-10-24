@@ -46,10 +46,7 @@ Kuliah sambil kerja tersedia jadwal yang Fleksibel disesuaikan dengan kondisi an
 
 untuk pendaftaran bisa ikuti tata cara yang saya udah contohkan dibawah ini.
 
-🎓 [Formulir pendaftaran](https://forms.gle/r2v9rFjWXGMT1vCq9)
-
-[rekomendasi](https://edunitas.com/kampus/stie-widya-darma?gsf_by=d7bf08e6)
-Formulir pendaftaran
+🎓 [menjadi mahasiswa baru](https://forms.gle/r2v9rFjWXGMT1vCq9)
 
 
 Bagi semua Teman-teman yang ingin mendaftar kuliah sambil kerja bisa di kondisikan dari sekarang

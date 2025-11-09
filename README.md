@@ -74,7 +74,7 @@ ___
 
 ---
 
-### 🛍️ Belanja Kebutuhan 
+### 🛍️ Belanja
 
 🛒  [ rupa-rupa](https://invl.me/clmzt5r)
 🛒  [ Alibaba](https://invl.me/clmzt69)

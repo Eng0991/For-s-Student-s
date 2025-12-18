@@ -82,6 +82,6 @@ ___
 
 ### 📢Lowongan Kerja
 
-[Cari](https://satukerja.id/jobs/46746)
+[Cari]()
 
 

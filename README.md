@@ -82,6 +82,6 @@ ___
 
 ### 📢Lowongan Kerja
 
-[Cari]()
+[Cari]
 
 
